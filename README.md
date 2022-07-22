@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **whdyddnjs902@gmail.com**
 
-- 📄 Know about my experiences [https://bubbly-echinodon-61f.notion.site/Yongwon-9d274ca70b4748f89bbe8a19d47aa06e](https://bubbly-echinodon-61f.notion.site/Yongwon-9d274ca70b4748f89bbe8a19d47aa06e)
+- 📄 Know about my experiences --> notion url
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
